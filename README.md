@@ -1,0 +1,4 @@
+- Hi, I’m @internetchk
+- I’m interested in Web development and Digital marketing.
+- I’m currently learning Javascript for frontend development.
+- -  If you love to learn together please send an Email to me, internetchk@gmail.com 🌱👀 
